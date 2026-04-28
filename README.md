@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="knifecase knifecase knifecase">
+⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center">knifecase knifecasees knifacase</p>
 
 <img src="https://media1.tenor.com/m/lkqeSWHFpwUAAAAC/inanimate-insanity-ii.gif" alt="" style="width:60%; height:auto;">⠀
 
