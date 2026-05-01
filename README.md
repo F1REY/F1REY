@@ -1,4 +1,6 @@
 <p align="center">knifecase knifecasees knifacase</p>
 <p align="center"><img src="https://media1.tenor.com/m/lkqeSWHFpwUAAAAC/inanimate-insanity-ii.gif" alt="" style="width:60%; height:auto;"> 
-eraserdrop erasrop eradro</p>
-<img src="https://media1.tenor.com/m/ZrxHQEgsMKEAAAAC/teardrop-eraser.gif" alt="" style="width:60%; height:auto;"> <img src="https://media1.tenor.com/m/qApQlzEzL50AAAAC/bfdi-bfdia17-firey-gelatin-drawing-bfb-idfb-fireafy.gif" alt="" style="width:60%; height:auto;">
+<p align="center">eraserdrop erasrop eradro</p>
+<p align="center"><img src="https://media1.tenor.com/m/ZrxHQEgsMKEAAAAC/teardrop-eraser.gif" alt="" style="width:60%; height:auto;"></p>
+<p align="center">gelafierygelatif gelafirey</p>
+<p align="center"><img src="https://media1.tenor.com/m/qApQlzEzL50AAAAC/bfdi-bfdia17-firey-gelatin-drawing-bfb-idfb-fireafy.gif" alt="" style="width:60%; height:auto;"></p>
