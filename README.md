@@ -6,7 +6,7 @@
 <p align="center">
 <p align="center">⏖</p>
 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀[CLICK HERE TO VIEW MY ART !!](https://ca.pinterest.com/BAZlNKA/)
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀[CLICK HERE TO VIEW MY ART !!](https://ca.pinterest.com/BAZlNKA/)
 
 <p align="center"> ゛ <img width="70" height="80" src="https://media.tenor.com/V6YWA7WDY6gAAAAi/bfdi-firey-firey-bfdi.gif" alt=""> ⠀⠀⸝⸝</p>
 
